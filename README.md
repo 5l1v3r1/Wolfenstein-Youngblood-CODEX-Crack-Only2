@@ -1,7 +1,7 @@
 # Wolfenstein Youngblood CODEX Crack Only
  Wolfenstein Youngblood CODEX Crack Only + TORRENT FREE DOWNLOAD
 
-DIRECT LINK : https://uploadhaven.com/download/625f8697508084e3465041de8c17a7fd
+DIRECT LINK FULL GAME : https://uploadhaven.com/download/625f8697508084e3465041de8c17a7fd
 
 CRACKED EXE : https://drive.google.com/file/d/1YqbkzSfELzw8-1lVESTKVPDomQoIRBdA/view
 
